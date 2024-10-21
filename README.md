@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SushyWork
+- 👀 I’m interested in coding and 3d modelling
+- 🌱 I’m currently learning computer science
+- 📫 rylchikwork@gmail.com
